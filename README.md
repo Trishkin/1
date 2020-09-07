@@ -1,2 +1,2 @@
 # Kulikov Dmitry
-FIT 1/2
+FIT ISIT 1/2
